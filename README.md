@@ -4,6 +4,6 @@
 [Where i fuck around in my instagram](https://instagram.com/markswitchr)
 
 
-what the dog doin?[](sus/whatdadogdoin.gif)
+what the dog doin?[](whatdadogdoin.gif)
 
 
